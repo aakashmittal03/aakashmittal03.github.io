@@ -8,3 +8,5 @@
 3. Bhadwa
 4. Sala
 5. Randibaaj
+* Gandu
+* Tato k saudagar
